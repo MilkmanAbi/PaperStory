@@ -23,9 +23,9 @@ Luna stared blankly. Rice, really? Was dinner just supper now? At least they had
 
 ---
 
-So they ate. Simple enough - whatever they could cobble together, tofu, rice, the furikake Luna had grabbed like it was a personal victory. Two cold cans between them on the small table, takeout containers nudged to one side to make room. Luna cracked hers open first. Aoi followed, a moment later, like she'd been waiting to see if Luna would first.
+So they ate. It wasn't much — thrown together, good enough, the kind of dinner that existed mainly to justify sitting down. Luna cracked her beer first and the sound of it was almost ceremonial. Aoi followed a beat later, like she'd been waiting to confirm it was a thing they were doing, and then they were just sitting there, two cold cans on the small table, the day getting off them gradually the way it does when you finally stop moving.
 
-The overhead light was too bright. It always was. Neither of them had done anything about it.
+The overhead light was too bright. It always was. Neither of them had done anything about it. By the second can, neither of them particularly cared.
 
 "How was today...," Luna asked, not really asking.
 
@@ -79,9 +79,9 @@ Luna nodded slowly. Just, yeah. Of course. What else was there.
 
 ---
 
-They finished eating. Or mostly — Aoi had pushed her rice around for a bit before setting her chopsticks down like that was a decision. Luna was on her second half of the can, not rushing it, just letting the cold of it sit in her hand.
+They finished eating. Or mostly — Aoi had set her chopsticks down at some point and just sat there, her chin resting on her hand, and Luna had let her. The beer was doing its quiet thing — not drunk, just softer around the edges, the way a second drink on a Friday makes the week feel further away than it actually is. Luna could feel it in the way her shoulders had dropped. She suspected Aoi could too, though Aoi would never say so. She just looked — less held-together than usual. A little loose. It suited her, secretly.
 
-"Can I ask you something," she said.
+"Can I ask you something," Luna asked it, just felt like it.
 
 "You're going to regardless."
 
@@ -99,9 +99,9 @@ A long pause. Aoi picked up her beer. Drank.
 
 Aoi looked at her then, just for a second. Set the can down carefully.
 
-"My brother's better at everything. Or he was, or—" she stopped. "It doesn't matter. My parents wanted something I wasn't. I was angry about it for a while and then I got tired of being angry and then I just... stopped going home as much. And they let me."
+"My brother's better at everything. Or he was, or—" she stopped. "It doesn't matter. My parents wanted something I wasn't. I was angry about it for a while and then I got tired of being angry and then I just... I dunno... stopped going home as much, I guess. And they kinda just let me."
 
-"They let you."
+"Eh... Oh. They let you?"
 
 "It was easier. For everyone."
 
@@ -211,3 +211,30 @@ Luna just stood there for a second.
 
 A beat, and then Aoi went in, and after a moment Luna followed, and the light under the door stayed on for a while before it didn't.
 
+The room was cold. It was always cold - the heating in the building being more of a seasonal suggestion than an actual system. Aoi was already in bed by the time Luna had brushed her teeth, blanket pulled up, facing the wall.
+
+Luna got in.
+
+There was a beat where neither of them moved, both very aware of the other in the specific way you're aware of someone when you've decided not to think about it.
+
+Then Aoi shifted. Just a little. Back, toward the warmth of her.
+
+Luna noticed. Obviously she noticed.
+
+She didn't say anything about it. Just moved closer, pulled the blanket up properly over both of them, and let her arm settle around Aoi — and Aoi tucked herself in, adjusting until her head was against Luna's chest, her back against Luna's front, the two of them fitted together in the easy way of people being practical about warmth and not calling it anything else.
+
+Outside, wind moved through something — a tree, a gap in the eaves, it was hard to tell. A low sound, steady and soft. The kind that made being inside feel more like being inside.
+
+The blanket was thick enough that the cold didn't reach them, not really, though the air above it had a chill to it if you moved. They didn't move. Aoi had gone quiet, her eyes closed or most of the way there, her breathing slow and a little deliberate the way it goes when you're comfortable but still aware of it. Luna's arm was around her waist. She could feel the small rise and fall of her chest, unhurried, the warmth of her radiating back through layers of blanket and sleep-soft fabric.
+
+"...Warmer," Aoi said eventually. Not quite a whisper. Just a fact, put into the room.
+
+"Mm," Luna said.
+
+She meant it more than she let on. Luna spent a lot of her days being around people — good at it, built for it — and still came home to a quiet that sat in the apartment like something physical. She hadn't named it before tonight, not clearly. But this — Aoi's weight against her, the specific warmth of another person choosing to be close — this was the part she hadn't known she'd been missing. Not company in general. This, specifically.
+
+Aoi, for her part, wasn't thinking about much. That was the thing. She was usually thinking about something — cataloguing, managing, keeping tabs on the distance between herself and everyone else. It was exhausting in the way you didn't notice until it stopped. And right now it had stopped. Luna's arm around her, steady and undemanding, her heartbeat a slow thud against Aoi's ear — it was grounding in the simplest possible sense. Here. Real. Held. She hadn't realised how much she'd wanted that until she was already in it.
+
+Her chin was near the top of Aoi's head. Outside the wind came again, a soft pass of it, and inside they were just here, close and still, the blanket pulled all the way up.
+
+Luna lay there a while after Aoi's breathing finally went slow and even — gone somewhere soft and unguarded, the held-together quality she usually carried completely gone — and felt, quietly and without drama, like she was exactly where she was supposed to be.
