@@ -127,18 +127,5 @@ To restyle a beat, drop a new image into assets/wallpapers/ and point that
 beat's wall at the filename. Any wide image works; it's shown full-bleed
 (background-size: cover).
 
-## Credits
-
-- The rain engine is the author's own cozy_rain_physics (Marshall-Palmer drop
-  sizes, Ornstein-Uhlenbeck wind, oblique-impact splashes, rain on glass),
-  wrapped so the reader can drive its intensity. The snow engine is
-  purpose-built for this site.
-- The wandering companions build on the classic oneko idea; the cat sprite
-  comes from the oneko.js lineage and the fox is a recolour of it. Sprite-set
-  layout follows lots-o-nekos.
-- Glass-and-colour theming and the markdown reading style come from the
-  author's PaperNotes; the firefly swarm from Sage-Playground.
-- Markdown rendered with marked. Cat, fox, and the pair are the author's own
-  lineart.
 
 Made cozy on purpose. (=^..^=)
